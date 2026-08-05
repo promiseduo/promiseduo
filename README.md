@@ -1,13 +1,10 @@
 
 ![90317bd353f36a85038fc8497f1d3c73](https://github.com/user-attachments/assets/e194051b-34d5-4f92-8ee4-b311d0cee51c)
 
-### introduction
-_Im hiv, can accept any nicknames . please iwec if under 13 . I may be dry towards you at first but I'll get comfortable around you eventually (please be patient with me) . I don't usually talk first ._
+_remaking bc i feel cringed_
 
 ![f216f9019a90a52f965fa7b5e9d38030](https://github.com/user-attachments/assets/f5068621-c02a-4236-8523-2b9077efa238)
 
-### others
-_if you happened to found me.. I'm sometimes offtab or afk so I may reply your message late (please whisper, i don't check public chat so often) . sometimes im with friends , alone or sitting with someone . feel free to talk to me except if ur problematic . c+h freely even if it's not stated in my name ._
 
 ![8b0e6103f6e5137ce179ad3894276c12](https://github.com/user-attachments/assets/1dd356ad-7c94-4599-92a4-fea6cd70fe0e)
 
