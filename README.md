@@ -1,7 +1,8 @@
 
 ![90317bd353f36a85038fc8497f1d3c73](https://github.com/user-attachments/assets/e194051b-34d5-4f92-8ee4-b311d0cee51c)
 
-Hi
+Promise duo is my comfort duo ok? ok
+(please dont ship em I feel uncomf) 
 
 ![f216f9019a90a52f965fa7b5e9d38030](https://github.com/user-attachments/assets/f5068621-c02a-4236-8523-2b9077efa238)
 
