@@ -9,7 +9,7 @@
 
 </p>
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/promiseduo?label=Pirates+🏴‍☠️&labelColor=ffffff&color=000000) 𓊝 ![Github Views](https://views.igorkowalczyk.dev/api/badge/promiseduo?label=Wubes+(✿◕‿◕)&labelColor=ffffff&color=000000) 
+![Github Views](https://views.igorkowalczyk.dev/api/badge/promiseduo?label=Pirates+🏴‍☠️&labelColor=ffffff&color=000000)ㅤ𓊝ㅤ![Github Views](https://views.igorkowalczyk.dev/api/badge/promiseduo?label=Wubes+(✿◕‿◕)&labelColor=ffffff&color=000000) 
 
 
 <details>
