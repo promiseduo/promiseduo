@@ -38,4 +38,21 @@ proshippers/darkshippers, boundaries breakers, ai artist+ai supporters, problema
   <summary> <img width="30" height="30" alt="1000063979" src="https://github.com/user-attachments/assets/744f3c96-aad0-4b85-9516-723541c11869" /> </summary>
 
 over 20+, under 13
+
 </details>
+
+</p>
+
+<img width="540" height="303" alt="1000063974" src="https://github.com/user-attachments/assets/53ce23ba-bd60-49d3-961b-5f729e2294bd" />
+
+</p>
+
+<img width="20" height="15" alt="1000063976" src="https://github.com/user-attachments/assets/021761a9-f745-4123-8b8a-1156f74b1616" /> promise duo <img width="20" height="15" alt="1000063980" src="https://github.com/user-attachments/assets/6d47bd04-27fb-4786-b3af-e0a7c469e28d" />
+
+<img width="736" height="736" alt="1000063991" src="https://github.com/user-attachments/assets/bcfb2b32-8280-40c8-9387-4c60b52b3130" />
+
+<img width="736" height="696" alt="1000063993" src="https://github.com/user-attachments/assets/c3ca09a6-131f-483d-9b5d-132d6119f469" />
+
+<img width="736" height="700" alt="1000063996" src="https://github.com/user-attachments/assets/0d031a47-4522-421b-a8a0-c26b48f3ba75" />
+
+<img width="736" height="736" alt="1000063992" src="https://github.com/user-attachments/assets/b5190bcb-d606-437d-a647-2619888e05c6" />
