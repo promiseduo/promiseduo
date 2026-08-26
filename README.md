@@ -12,6 +12,6 @@
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/promiseduo?label=Pirates+🏴‍☠️&labelColor=ffffff&color=000000) 
 
 <details>
-<summary> <img width="30" height="30" alt="1000063979" src="https://github.com/user-attachments/assets/744f3c96-aad0-4b85-9516-723541c11869" /> </summary>
+<summary> <img width="30" height="30" alt="1000063979" src="https://github.com/user-attachments/assets/744f3c96-aad0-4b85-9516-723541c11869" /> me </summary>
 
 hio my name is Karu, short for Aru. my pronouns are she/them. im not very active on ponytown due to school. im sensitive and i have adhd (not severe). yes you can bmf but i may be awkward at first, please be patient with me. <img width="20" height="20" alt="1000063983" src="https://github.com/user-attachments/assets/cd7872f5-fa85-491a-aed0-2aa80c456a15" />
