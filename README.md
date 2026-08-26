@@ -9,7 +9,8 @@
 
 </p>
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/promiseduo?label=Pirates+🏴‍☠️&labelColor=ffffff&color=000000) 
+![Github Views](https://views.igorkowalczyk.dev/api/badge/promiseduo?label=Pirates+🏴‍☠️&labelColor=ffffff&color=000000) ![Github Views](https://views.igorkowalczyk.dev/api/badge/promiseduo?label=Wubes+(✿◕‿◕)&labelColor=ffffff&color=000000) 
+
 
 <details>
 <summary> <img width="30" height="30" alt="1000063979" src="https://github.com/user-attachments/assets/744f3c96-aad0-4b85-9516-723541c11869" /> me </summary>
