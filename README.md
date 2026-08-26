@@ -47,7 +47,7 @@ over 20+, under 13
 
 </p>
 
-<img width="20" height="15" alt="1000063976" src="https://github.com/user-attachments/assets/021761a9-f745-4123-8b8a-1156f74b1616" /> promise duo <img width="20" height="15" alt="1000063980" src="https://github.com/user-attachments/assets/6d47bd04-27fb-4786-b3af-e0a7c469e28d" />
+<img width="20" height="15" alt="1000063976" src="https://github.com/user-attachments/assets/021761a9-f745-4123-8b8a-1156f74b1616" /> promise duo gallery <img width="20" height="15" alt="1000063980" src="https://github.com/user-attachments/assets/6d47bd04-27fb-4786-b3af-e0a7c469e28d" />
 
 <img width="736" height="736" alt="1000063991" src="https://github.com/user-attachments/assets/bcfb2b32-8280-40c8-9387-4c60b52b3130" />
 
