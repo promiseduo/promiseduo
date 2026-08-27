@@ -65,3 +65,6 @@ over 20+, under 13
 <img width="736" height="626" alt="1000064020" src="https://github.com/user-attachments/assets/5b394810-c55d-471b-b576-a3aeb10b1cdc" />
 
 <img width="736" height="696" alt="1000064021" src="https://github.com/user-attachments/assets/26d24e7c-53c0-48ca-892e-6cd323f2bd2d" />
+
+<img width="150" height="20" alt="1000064136" src="https://github.com/user-attachments/assets/5d3e173f-21a5-48d6-806e-eabdf1ff8b7e" /> <img width="20" height="20" alt="1000063990" src="https://github.com/user-attachments/assets/8d73186e-d4cc-48ab-9720-57b3f5a6c82f" /> <img width="150" height="20" alt="1000064137" src="https://github.com/user-attachments/assets/b72916a5-c219-487a-abb1-08f234d3ea16" />
+
