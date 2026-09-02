@@ -44,7 +44,31 @@ over 20+, under 13
 
 </p>
 
-<img width="540" height="303" alt="1000063974" src="https://github.com/user-attachments/assets/53ce23ba-bd60-49d3-961b-5f729e2294bd" />
+<img width="444" height="250" alt="1000063986" src="https://github.com/user-attachments/assets/b14850d5-db4e-4b16-b671-6241bd746912" />
+
+</p>
+
+<img width="20" height="15" alt="1000063976" src="https://github.com/user-attachments/assets/021761a9-f745-4123-8b8a-1156f74b1616" /> links <img width="20" height="15" alt="1000063980" src="https://github.com/user-attachments/assets/6d47bd04-27fb-4786-b3af-e0a7c469e28d" />
+
+</p>
+
+<a href="https://promiseduo.atabook.org"><img width="410" height="200" alt="1000064486" src="https://github.com/user-attachments/assets/ec9a50e4-2ac4-4b97-8911-b800a348a165" /></a>
+
+</p>
+
+<a href="https://promiiseduo.straw.page"><img width="410" height="200" alt="1000064487" src="https://github.com/user-attachments/assets/0ff7c53f-25c0-4c7a-9f2e-468be5de31f5" /></a>
+
+</p>
+
+<a href="https://rentry.co/promiiseduos"><img width="410" height="200" alt="1000065124" src="https://github.com/user-attachments/assets/40fc9d63-12e1-4cad-a65c-e806c9c0ddbf" /></a>
+
+</p>
+
+<a href="https://en.pronouns.page/@promiseduo"><img width="410" height="200" alt="1000065135" src="https://github.com/user-attachments/assets/6488a69a-0dee-4f00-9fe8-28b2b21aa7c9" /></a>
+
+</p>
+
+<img width="540" height="303" alt="1000063974" src="https://github.com/user-attachments/assets/eb88c0f6-2d14-42d8-8acc-6005d226241c" />
 
 </p>
 
