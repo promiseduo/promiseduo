@@ -137,3 +137,12 @@ over 20+, under 13
 </p>
 
 <img width="150" height="20" alt="1000064136" src="https://github.com/user-attachments/assets/5d3e173f-21a5-48d6-806e-eabdf1ff8b7e" /> <img width="20" height="20" alt="1000063990" src="https://github.com/user-attachments/assets/8d73186e-d4cc-48ab-9720-57b3f5a6c82f" /> <img width="150" height="20" alt="1000064137" src="https://github.com/user-attachments/assets/b72916a5-c219-487a-abb1-08f234d3ea16" />
+
+</p>
+
+<details>
+  <summary> <img width="30" height="30" alt="1000063979" src="https://github.com/user-attachments/assets/744f3c96-aad0-4b85-9516-723541c11869" /> </summary>
+
+[kyle](https://github.com/desiredlife) , [axel](https://github.com/decayingcorpses) <--- loveliest couple that i love TwT 
+
+</details>
