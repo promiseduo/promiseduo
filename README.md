@@ -141,8 +141,10 @@ over 20+, under 13
 </p>
 
 <details>
-  <summary> <img width="30" height="30" alt="1000063979" src="https://github.com/user-attachments/assets/744f3c96-aad0-4b85-9516-723541c11869" /> </summary>
+  <summary> <img width="30" height="30" alt="1000063979" src="https://github.com/user-attachments/assets/744f3c96-aad0-4b85-9516-723541c11869" /> oomfs </summary>
 
-[kyle](https://github.com/desiredlife) , [axel](https://github.com/decayingcorpses) <--- loveliest couple that i love TwT 
+[kyle](https://github.com/desiredlife) , [axel](https://github.com/decayingcorpses) <-- loveliest couple that i love TwT 
+
+[shady](https://github.com/kaboodIe) , imaginarly (deleted her github sadly) <-- my cool trio ^3^
 
 </details>
