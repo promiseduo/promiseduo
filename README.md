@@ -147,4 +147,6 @@ over 20+, under 13
 
 [shady](https://github.com/kaboodIe) , imaginarly (deleted her github sadly) <-- my cool trio ^3^
 
+[elliot](https://github.com/elliot-builder-fictkin) , [putri](https://github.com/iam-mygfbunny) , [weirdoses](https://github.com/weirdoses) , [@wumble](https://github.com/tigery123) <-- kwel people (✿◕‿◕)
+
 </details>
