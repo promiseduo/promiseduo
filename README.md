@@ -150,3 +150,10 @@ over 20+, under 13
 [elliot](https://github.com/elliot-builder-fictkin) , [putri](https://github.com/iam-mygfbunny) , [enzo](https://github.com/weirdoses) , [wumble](https://github.com/tirgery123) <-- kwel people (✿◕‿◕)
 
 </details>
+
+</p>
+
+<details>
+  <summary> <img width="30" height="30" alt="1000063979" src="https://github.com/user-attachments/assets/744f3c96-aad0-4b85-9516-723541c11869" /> kwel titles </summary>
+
+[title town](https://github.com/title-town) - [pt everypony](https://github.com/pt-everypony)
