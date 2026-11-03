@@ -156,4 +156,4 @@ over 20+, under 13
 <details>
   <summary> <img width="30" height="30" alt="1000063979" src="https://github.com/user-attachments/assets/744f3c96-aad0-4b85-9516-723541c11869" /> kwel titles </summary>
 
-[title town](https://github.com/title-town) - [pt everypony](https://github.com/pt-everypony)
+[title town](https://github.com/title-town) - [pt everypony](https://github.com/pt-everypony) [pt fashion](https://github.com/pt-fashion)
